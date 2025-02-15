@@ -4,5 +4,4 @@
 💞️ I'm excited to collaborate with a company where I can sharpen my skills while contributing to their success.
 📫 How to reach me: https://www.linkedin.com/in/archana-p-56303734/
 😄 Pronouns: She/her
-⚡ Fun fact:I love debugging both code and real-life puzzles!
-
+⚡ Fun fact:I love debugging both code and real-life puzzles...
